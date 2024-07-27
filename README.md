@@ -24,4 +24,4 @@ COMMANDS :-
 ![348223983-e8f76ae2-b093-44a7-8f3f-db459a0614e7](https://github.com/user-attachments/assets/b54d3d52-fff9-430f-ab00-68ea1e54d2c3)
 ![348223996-e25854db-1033-49d4-9e48-fa7fa093a1d8](https://github.com/user-attachments/assets/0f5d526a-8235-45f5-90c6-86c44e44156e)
 ![348222522-437a993f-6c0b-4e86-bd47-cfdb0894b5c4](https://github.com/user-attachments/assets/6b9eb4a4-b37b-41f0-9375-28a38ae1c28c)
-![348223996-e25854db-1033-49d4-9e48-fa7fa093a1d8](https://github.com/user-attachments/assets/3beadabe-7c00-4bfb-a48a-0005ad61347e)
+![352481687-1ae35eab-c4a1-4bf3-af97-21e806348fa7](https://github.com/user-attachments/assets/3853658b-6249-4983-851a-3e02d99092de)
